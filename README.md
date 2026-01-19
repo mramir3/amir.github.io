@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Amir Ansary
 
-📍 Purulia, India  
+📍 Kolkata, India  
 📧 Email: ansaryamir7@gmail.com  
 📞 Phone: +91 7719272591  
 🔗 LinkedIn: https://linkedin.com/in/mramir11  
